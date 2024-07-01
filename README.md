@@ -1,4 +1,4 @@
--  Hi, I’m @viktorh11
+-  Hi, I’m viktor
 -  I’m interested in game
 -  I’m currently learning coding
 -  I’m looking to collaborate on noting
