@@ -9,6 +9,7 @@
 - what is your favorite scream film
 - my brother is scream 3
 - what do you like send or comment on mine and mine brohter youtube channel at gamingbrothers837
+- what do you want more in this teckt is your ide now comment on the youtube channel
 
 <!---
 viktorh11/viktorh11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
