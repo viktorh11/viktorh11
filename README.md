@@ -1,15 +1,27 @@
--  Hi, I’m viktor
--  I’m interested in game
--  I’m currently learning coding
--  I’m looking to collaborate on noting
--  How to reach your lives
--  Pronouns: dont now
--  Fun fact: ilke to whact youtube
-- i also like to whact scream 3
-- what is your favorite scream film
-- my brother is scream 3
-- what do you like send or comment on mine and mine brohter youtube channel at gamingbrothers837
-- what do you want more in this teckt is your ide now comment on the youtube channel
+-  Hello
+-  my name is viktor
+-  what is your favirot supra
+-  next will be from a youtube short video callde when you met a supra fan
+-  it wille be supra fan: and somone: it is from a video
+-  somone: ahhhhh
+-  bonk!
+-  somone: cheesus
+-  supra fan: i have a supra
+-  somone: okej
+-  supra fan: do like my supra
+-  somone: iam not big fan of supra
+-  supra fan: you dont like my supra
+-  somone: ummmm...
+-  sad supra noice
+-  somone yeah sure i like your supra and it nice
+-  supra fan: yay iam so happy yippee
+-  supra fan: i love supras my whole life
+-  somone: how old are you
+-  supra fan: i 9
+-  somone: okej
+-  supra fan: do want to dift with me
+-  somone: ahh iam whiting on a friend
+-  supra fan: can we drit toghter
 
 <!---
 viktorh11/viktorh11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
