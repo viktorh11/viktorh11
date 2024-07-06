@@ -17,11 +17,32 @@
 -  supra fan: yay iam so happy yippee
 -  supra fan: i love supras my whole life
 -  somone: how old are you
--  supra fan: i 9
+-  supra fan: im 9
 -  somone: okej
--  supra fan: do want to dift with me
--  somone: ahh iam whiting on a friend
--  supra fan: can we drit toghter
+-  supra fan: do wanne to dift with me
+-  somone: im actually waiting on a friend
+-  supra fan: are you tow gona drit toghter
+-  somone: yeah
+-  supra fan: can i join you
+-  supra fan: please please please plz
+-  somone: maybe another day
+-  somone: okej?
+-  sad supra noises
+-  somone: w-what is happning
+-  supra fan: how can u drift thogeter with him but not me
+-  somone: uhhhhh
+-  somone: uh fine! you can join us
+-  supra fan: omg thank you. can we be friends.
+-  somone: wh-wha hun
+-  supra fan: do you have discord
+-  somone: no?
+-  supra fan: facebook
+-  somone: nope listen uhh i left my oven on i gotta go
+-  supra fan: you have a oven
+-  somone: yeah
+-  supra fan: thats so cool my mom has a oven
+-  somone ill see you around
+-  supra fan: bye friend
 
 <!---
 viktorh11/viktorh11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
