@@ -43,6 +43,7 @@
 -  supra fan: thats so cool my mom has a oven
 -  somone ill see you around
 -  supra fan: bye friend
+-  that the whole video in text here goodbye and youtube is free:)
 
 <!---
 viktorh11/viktorh11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
